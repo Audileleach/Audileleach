@@ -1,2 +1,2 @@
-- 👋 Hola, soy @Audileleach y estoy aprendiendo priogramación!!!
+- 👋 Hola, soy @Audileleach y sigo aprendiendo programacion
 
